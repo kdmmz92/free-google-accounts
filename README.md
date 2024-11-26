@@ -2,6 +2,8 @@
 
 Website: [https://allshop.vip](https://allshop.vip/?_referrer=ghkdmmz92)
 
+![allshop-google](allshop-google.png)
+
 Google account, commonly known as: Google mail, Gmail mailbox, Youtube are all Google account directly logged on the line
 
 ##### Shipping Information
